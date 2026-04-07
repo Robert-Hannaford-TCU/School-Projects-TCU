@@ -1,4 +1,6 @@
 # School-Projects
- School Projects - TCU - (2022-2026)
+ A few of my undergraduate projects - TCU - (2022-2026)
 
- V
+# Senior Projects - Demo Videos
+https://drive.google.com/drive/folders/1Hf1QdamVYFT295YSebwYhqyU_UeDHxzU?usp=sharing
+
